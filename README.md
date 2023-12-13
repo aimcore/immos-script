@@ -28,6 +28,9 @@ Also im not gonna leak any names of the people that gave me these scripts cuz i 
 
 Also i do not take any response of yalls account if you get banned by using any of this stuff just make sure you're not an ed and got anticheat bypass executed.
 
+--ALSO ELLO UR UGLY ASH NGL
+https://cdn.discordapp.com/attachments/1142421185628491836/1184604854811906198/hSgEoKL.jpg?ex=658c943e&is=657a1f3e&hm=bf8f918b909917fe2d034c7358a7c7c900494cd56bd92e9ad27c484ece90bad6&
+
 https://github.com/aimcore/immos-script/assets/153763594/e286c2f8-04c6-43ea-b7cd-494cb90eecb2
 
 https://github.com/aimcore/immos-script/assets/153763594/13df6047-ce1e-47f9-935a-e386d8805444
