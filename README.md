@@ -27,8 +27,8 @@ Disclaimer : Basically Stop being a bitch and be normal for once and stop trusti
 Also im not gonna leak any names of the people that gave me these scripts cuz i aint no snitch like most if immos friends also pls stop being gay
 
 Also i do not take any response of yalls account if you get banned by using any of this stuff just make sure you're not an ed and got anticheat bypass executed.
+--- ELLO UR UGLY ASF
 
---ALSO ELLO UR UGLY ASH NGL
 ![ello](https://github.com/researchablee/immos-script/assets/153763594/20beb211-a814-490d-a304-5ce1f113bff9)
 
 
