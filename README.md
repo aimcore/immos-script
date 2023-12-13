@@ -4,9 +4,7 @@ I'll be leaking sum of immos stuff cuz i feel like it.
 
 Feel Free to use them.
 
-Thanks to 2 of Immos Friends for giving me these scripts <3.
-
-lol
+Thanks to two nice friends of immo for giving me these scripts <3.
 
 will be deleting this after 20-30 mins save everything while you can
 
@@ -16,4 +14,10 @@ will be deleting this after 20-30 mins save everything while you can
 
 3. Will These scripts be patched? Most Likely Immo is gonna patch them cuz he doesnt want anyone to have them  that he doesnt know or is good friends with💀
 
+If you have any questions not related to these scripts feel free to add and dm me on discord.
+ 
+User: researchablee
+
 https://github.com/aimcore/immos-script/assets/153763594/e286c2f8-04c6-43ea-b7cd-494cb90eecb2
+
+lol
