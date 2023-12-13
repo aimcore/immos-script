@@ -6,7 +6,7 @@ Feel Free to use them.
 
 Thanks to two nice friends of immo for giving me these scripts <3.
 
-1. Will you help us how to use these scripts? No, i wont help how to use these scripts either figure it out yourself or cry. THANKS
+1. Will you help us how to use these scripts? No, i wont help how to use these scripts either figure it out yourself or cry. THANKS (i will maybe add an small tutorial above each script)
 
 2. Why did you leak these scripts? Like i said Before cuz i feel like it and immos a bitch <3
 
