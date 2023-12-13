@@ -1,3 +1,6 @@
+--- THIS IS NOT EVERYTHING WILL BE ADDING MUCH MORE OVER THE TIME JUST WAIT.
+
+
 Sup.
 
 I'll be leaking sum of immos stuff cuz i feel like it.
