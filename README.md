@@ -1,4 +1,4 @@
---- THIS IS NOT EVERYTHING WILL BE ADDING MUCH MORE OVER THE TIME JUST WAIT.
+--- THIS IS NOT EVERYTHING WILL BE ADDING MUCH MORE OVER THE TIME JUST WAIT. (will be making a discord server with more things in it later)
 
 
 Sup.
