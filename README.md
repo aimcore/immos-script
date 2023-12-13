@@ -13,7 +13,7 @@ Thanks to two nice friends of immo for giving me these scripts <3.
 
 2. Why did you leak these scripts? Like i said Before cuz i feel like it and immos a bitch <3
 
-3. Will These scripts be patched? Most Likely Immo is gonna patch them cuz he doesnt want anyone to have them  that he doesnt know or is good friends with💀
+3. Will These scripts be patched? Most Likely Immo is gonna patch them cuz he doesnt want anyone to have them  that he doesnt know or isnt good friends with💀
 
 If you have any questions not related to these scripts feel free to add and dm me on discord.
  
