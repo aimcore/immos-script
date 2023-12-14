@@ -1,6 +1,9 @@
 --- THIS IS NOT EVERYTHING WILL BE ADDING MUCH MORE OVER THE TIME JUST WAIT. (will be making a discord server with more things in it later)
+
 --- Every Script on this github is considered dangerous and could get you banned.
+
 --- Neither The uploader nor the people that gave me these scripts are accountable for your actions.
+
 --- By Reading this you Agree that you acknowledge these terms.
 
 https://github.com/researchablee/immos-script/assets/153763594/63697cb1-eb84-4870-8966-26afe6e18cdf
