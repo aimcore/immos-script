@@ -7,6 +7,7 @@
 --- By Reading this you Agree that you acknowledge these terms.
 
 -- Scroll down for more infos.
+
 https://github.com/researchablee/immos-script/assets/153763594/63697cb1-eb84-4870-8966-26afe6e18cdf
 
 Sup.
