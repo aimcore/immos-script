@@ -1,5 +1,9 @@
 --- THIS IS NOT EVERYTHING WILL BE ADDING MUCH MORE OVER THE TIME JUST WAIT. (will be making a discord server with more things in it later)
+--- Every Script on this github is considered dangerous and could get you banned.
+--- Neither The uploader nor the people that gave me these scripts are accountable for your actions.
+--- By Reading this you Agree that you acknowledge these terms.
 
+https://github.com/researchablee/immos-script/assets/153763594/63697cb1-eb84-4870-8966-26afe6e18cdf
 
 Sup.
 
@@ -24,7 +28,7 @@ lol
 Ps : I did not make any of these scripts so dont blame me for these ugly ass sources lmao immos sources are always like this
 
 Disclaimer : Basically Stop being a bitch and be normal for once and stop trusting everyone with your scripts lol. 
-Also im not gonna leak any names of the people that gave me these scripts cuz i aint no snitch like most if immos friends also pls stop being gay
+Also im not gonna leak any names of the people that gave me these scripts cuz i aint no snitch like most of immos friends also pls stop being gay
 
 Also i do not take any response of yalls account if you get banned by using any of this stuff just make sure you're not an ed and got anticheat bypass executed.
 
@@ -32,9 +36,7 @@ Also i do not take any response of yalls account if you get banned by using any 
 
 ![ello](https://github.com/researchablee/immos-script/assets/153763594/20beb211-a814-490d-a304-5ce1f113bff9)
 
-https://github.com/researchablee/immos-script/assets/153763594/28be8347-9439-41c1-a5dc-cc2caa63cf35
-
-https://github.com/researchablee/immos-script/assets/153763594/57eb58f9-223a-4038-89e8-f088994d0b71
+https://github.com/researchablee/immos-script/assets/153763594/120123a3-4d78-4989-b7a2-86120c10a8c2
 
 https://github.com/aimcore/immos-script/assets/153763594/13df6047-ce1e-47f9-935a-e386d8805444
 
